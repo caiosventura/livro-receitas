@@ -22,3 +22,6 @@
 7. Na mesma frigideira usada para o bacon, frite o alho junto das folhas de louro até dourarem e coloque na panela de pressão.
 8. Mexa bem a panela de pressão, e deixe ela pegar pressão e espere por mais 15 minutos. Depois disso, remova a pressão e ainda deixe ferver por mais 10 minutos até o caldo engrossar.
 9. Adicione cebolinha e sal à gosto e sirva.
+
+
+
