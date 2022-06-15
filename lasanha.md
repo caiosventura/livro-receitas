@@ -1,5 +1,8 @@
 # Strogonoff de Frango
 
+![Foto de um Strogonoff](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/Beef_Stroganoff%2C_Iran_%28cropped%29.jpg/306px-Beef_Stroganoff%2C_Iran_%28cropped%29.jpg)
+
+
 **Ingredientes**
 
 - 3 peitos de frango cortados em cubos
